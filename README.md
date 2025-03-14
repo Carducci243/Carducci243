@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Joël <br><br>School github : ST10459553 
+I'm Joël <br><br>School github : @ST10459553 
 
 
 ## 🌐 Socials:
